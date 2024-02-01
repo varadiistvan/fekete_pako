@@ -1,3 +1,3 @@
-# Fekete Pako
+# Fekete Pákó
 
-Onleiro cim
+Önleíró cím
